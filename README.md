@@ -1,0 +1,2 @@
+# basitogrencinotuygulamasi
+İstediğiniz gibi kullanabilirsiniz.
